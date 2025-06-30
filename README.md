@@ -1,0 +1,1 @@
+# eatsnap-privacy-policy
